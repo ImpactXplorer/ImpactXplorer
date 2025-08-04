@@ -116,7 +116,7 @@ I find inspiration in unexpected places — from the survival instincts of a **t
 
 ### ✍️ Quote I Live By  
 <p align="center"><i>
-But instinct is something which transcends knowledge.  
+Gut instinct is something which transcends knowledge.  
 We have, undoubtedly, certain finer fibers that enable us to perceive truths  
 when logical deduction, or any other willful effort of the brain, is futile.
 </i></p>  
